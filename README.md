@@ -10,4 +10,4 @@ My virtual image is not very perfect, and I don't have much artistic talent, so 
 - 🤔 I most want to create a little world of my own.
 - ❤️ I like kittens, cats can make me very happy.
 - 💬 If you need any help, feel free to email me!
-<img src="https://github.com/user-attachments/assets/983c5f5e-aa79-40b6-aa03-9a4edc59b548" alt="img" style="zoom: 33%;" />
+![KLCDM](https://github.com/user-attachments/assets/b72d766e-ed41-406e-be0a-1a9227c7ebd8)
