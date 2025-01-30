@@ -7,7 +7,7 @@ As my blog describes: Love is not about finding the perfect person, but about se
 
 My virtual image is not very perfect, and I don't have much artistic talent, so I'm very happy that someone will help me design it, though it sounds like bad behavior.
 
-<img src="https://github.com/user-attachments/assets/3c190666-692a-4ec1-90bc-05673b610c17" alt="img" style="zoom: 33%;" />
+<img src="https://github.com/user-attachments/assets/983c5f5e-aa79-40b6-aa03-9a4edc59b548" alt="img" style="zoom: 33%;" />
 
 - 🤔 I most want to create a little world of my own.
 - ❤️ I like kittens, cats can make me very happy.
