@@ -13,4 +13,3 @@ My virtual image is not very perfect, and I don't have much artistic talent, so 
 
 ---
 
-![KLCDM](https://github.com/user-attachments/assets/b72d766e-ed41-406e-be0a-1a9227c7ebd8)
