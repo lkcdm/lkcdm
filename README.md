@@ -1,15 +1,17 @@
 ## Hi there, I'm kcldm（小柯）. 👋
 It's a pleasure to have friends coming from afar.
 
-Nice to meet you, I am a student who is still learning, and my dream is to meet someone worth giving my heart to!
+Nice to meet you! I’m a student still learning, and my dream is to meet someone worth giving my heart to.
 
-As my blog describes: Love is not about finding the perfect person, but about seeing an imperfect person perfectly.
+As it says on my blog: Love is not about finding the perfect person, but about seeing an imperfect person perfectly.
 
-My virtual image is not very perfect, and I don't have much artistic talent, so I'm very happy that someone will help me design it, though it sounds like bad behavior.
+My virtual avatar isn’t perfect, and I don’t have much artistic talent, so I’m really happy to have someone help me design it—even if it feels like I’m asking for too much.
 
-- 🤔 I most want to create a little world of my own.
-- ❤️ I like kittens, cats can make me very happy.
-- 💬 If you need any help, feel free to email me!
+🤔 What I want most is to create a little world of my own.
+
+❤️ I like kittens; cats always make me really happy.
+
+💬 If you need any help, feel free to drop me an email!
 
 ---
 
